@@ -4,7 +4,7 @@ Opex Analytics aka Llamasoft Network Planning Case Study
 
 SUPPLY CHAIN PLANNING FOR A GLASS MANUFACTURER 
 
-If you want further information feel free to constanct me on jitendra.kr.rathore@gmail.com
+If you want further information feel free to constact me on jitendra.kr.rathore@gmail.com
 
 
 PROBLEM SUMMARY:
